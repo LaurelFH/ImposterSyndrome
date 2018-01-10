@@ -33,4 +33,4 @@ This site is built using a great template by gurayyarar;  more information can b
 
 It's really easy to customize and usage. You can use for from 320px to large resolution pixels of new generation screens and mobile devices. (**Fully Responsive Material Design**)
 
-Looking for Premium Templates?
+[https://themeforest.net/user/gurayyarar/portfolio](http://bit.ly/2oPFpmQ)
